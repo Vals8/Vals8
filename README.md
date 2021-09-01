@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vals8
+- 👀 I’m interested in Study Japan
+-☺ i love the frogs
+-aesthetic✨
+-i like the flowers✨⭐
